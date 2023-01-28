@@ -1,1 +1,1 @@
-# midnightstudios.github.io
+Welcome to the Midnight Studios home page!
